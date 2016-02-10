@@ -1,2 +1,2 @@
-#Chapter 7: Migration Flows [Malinowski et al., red book]
+#Chapter 7: Migration Flows [Kaplan et al., red book]
 
