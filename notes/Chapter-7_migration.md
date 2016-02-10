@@ -46,6 +46,49 @@
 
 ##5A Migration vs. Movement
 
+###Class notes
+**Is movement always migration**
+**Migration**
+ 1. Degree of permanency
+ 2. Migration is a long distence move that has a sense of permanency to it
+ 3. Most often, international migration ( between nations )
+ 4. Some are internal
+ **Migration patterns**
+ 1. Commonplace for people to move for similar reasons
+ 2. Lots of people leave specific region to similar region
+ 3. Geographers, recognize "pattern of migration"
+ 4. Cyclical movements/migrations, people that move back and forth during the day/yr
+ 5. Cyclical movement -> go to school and then go home (not migration!)
+ 6. Cyclical migration -> left and went to Miami until the end of semester for December and then go back again (IS MIGRATION, long distence, cyclic cycle, movement)
+ 7. Retirees move to FL for winter (E.G.)
+ 8. *"Snow birds!"*
+ 9. Entire cities in FL or AR that have snow birds
+ 10. Everyone in Florida are from somewhere else
+ 11. Highest rates of HIV in Florida (You know what...)
+ 
+*Periodic movements*
+ 1. Stepwise movement
+ 2. long distences, longer period of time
+ 3. include traveling to LA for college, labor
+ 4. Could be either movement or migration
+ 5. NOT PERMANENT!!!! So it's not MIGRATION but MOVEMENT
+ <br>
+*Periodic is over the pattern of time, cyclical is over the pattern of space*
+<br>*Remittances: The money you send back home*<br>
+	*Population pyrimid might shift, bulged thing occur over migrant workers*<br>
+**Bigger issue: Guest workers inducing *real* social challenges**
+
+<br>E.g. European attacks on immigrant groups, such as Turks, spread among the effect of their *family* members.<br>
+	E.g. Refugees from Syria<br>
+	Turks, moved in to belgium. Ethnic neighborhoods. Low income neighborhoods<br>
+	Highly Muslim, ethnically different, leads to ->[racism, violence, extremism]<br>
+	THE GRADUAL SHIFT TOWARDS EXTREMISM<br>
+	INCREASED SUPPORT OF RACISM<br>
+	Preparaation for social issues<br>
+	E.g. limit in law for racism<br>
+	Lack of law establishment, governments are not fully aware<br>
+
+
 **Migration**
  1. Permanent relocation
  2. Of one's place of residence
